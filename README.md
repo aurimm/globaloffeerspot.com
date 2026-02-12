@@ -1,0 +1,1 @@
+# globaloffeerspot.com
